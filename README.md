@@ -1,0 +1,1 @@
+# Distinctions-Between-Software-and-Service-A-Guide-to-Modern-Cloud-Services-Acquisition
